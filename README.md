@@ -1,0 +1,1 @@
+# Kyoto-corona-information
